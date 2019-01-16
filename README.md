@@ -8,7 +8,7 @@
 
 [Lorem Ipsum Generator](https://ru.lipsum.com/)
 
-![https://pp.userapi.com/c846417/v846417038/173a01/hnj3wP8WJuA.jpg](https://pp.userapi.com/c846417/v846417038/173a01/hnj3wP8WJuA.jpg)
+![](https://sun1-13.userapi.com/c543105/v543105552/3af86/p4CUKHIqe6w.jpg)
 
 |**Предмет**	|**Количество**|**Цена**|
 |----     |:-------:|----:|
